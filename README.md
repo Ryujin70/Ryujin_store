@@ -1,2 +1,2 @@
-# Ryujin_store
-Official landing page for Ryujin Store – Social Media Boosting Services, Gaming Accounts, UC Top-Ups,
+# Official website for Ryujin Store 🚀
+Premium Gaming Accounts • UC & Diamond Top-Ups • Organic Social Media Boosting • Trusted Digital Services
